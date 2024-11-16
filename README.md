@@ -1,1 +1,1 @@
-# creditcardguideforfirsttimeuser.github.io
+# credit-card-guide-for-first-time-user
